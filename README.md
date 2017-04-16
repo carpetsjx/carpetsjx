@@ -2,6 +2,8 @@
 
 where can i get spaghetti now
 ```diff
--i eat ass
+-i eat ass-
 ```
-where can i get spaghetti now
+```tex
+$ where can i get spaghetti now $
+```
