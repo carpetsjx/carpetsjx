@@ -2,15 +2,5 @@
 
 where can i get spaghetti now
 ```diff
--i eat ass-
+-the succerino is where i be cumming on dogs is what i sbe-
 ```
-```tex
-$ where can i get spaghetti now $
-```
-```cs
-' Dont look at this '
-```
-```cs
-# He vomits all over #
-```
-you can't see this but u r gay
